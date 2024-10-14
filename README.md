@@ -5,7 +5,7 @@
 
 ⚐ Based in Sao Paulo, Brazil
 
-ϟ Helping companies with the Digital Transformation
+ϟ Helping companies with Digital Transformation
 
 
  ## Skills
